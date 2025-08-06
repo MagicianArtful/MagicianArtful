@@ -34,3 +34,5 @@ I am such a Die of Death enthusiast. DOD fans int me!!!
 > Supporters of problematic people, media, fandoms, etc. - Do I need to explain...
 >
 > **I BLOCK OR HIDE FREELY. IF YOU DO THESE STUFF, DO NOT INTERACT**
+
+<img width="540" height="153" alt="tumblr_bcd542ee19f48c5301bfbaa350c1ee5d_07c67a8b_540" src="https://github.com/user-attachments/assets/719a7849-c695-497c-a8bb-7f9edea485b5" /> 
