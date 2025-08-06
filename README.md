@@ -36,3 +36,17 @@ I am such a Die of Death enthusiast. DOD fans int me!!!
 > **I BLOCK OR HIDE FREELY. IF YOU DO THESE STUFF, DO NOT INTERACT**
 
 <img width="540" height="153" alt="tumblr_bcd542ee19f48c5301bfbaa350c1ee5d_07c67a8b_540" src="https://github.com/user-attachments/assets/719a7849-c695-497c-a8bb-7f9edea485b5" /> 
+
+
+**[ THANKS FOR READING!! ]**
+
+
+![artful-die-of-death](https://github.com/user-attachments/assets/25dd8e32-b3ea-4cfd-9c43-33caf41c72ba)
+
+Me when I'm bored... ( DONT BANANA PEEL ME FOR THIS) 
+
+https://github.com/user-attachments/assets/cd34e12e-145d-42aa-bb70-68ae21c5b9d8
+
+[ VIDEO NOT MINE, JUST FOUND IT ON TUMBLR ]
+
+![die-of-death-die-of-death](https://github.com/user-attachments/assets/f62ae7c5-abd3-4baa-8433-3551214376bc)
